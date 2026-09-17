@@ -1,0 +1,116 @@
+# 党史百年天天读 · 10月1日
+
+> 更新时间：2026-09-17 (UTC+8)
+
+重要论述**1946年10月1日  **毛泽东为中共中央起草党内指示。指示总结自全面内战爆发以来的三个月战争的一系列经验，提出人民解放军在今后的作战方针和作战任务，指出：我必胜，蒋必败，除了政治上、经济上蒋介石无法克服的基本矛盾等原因外，在军事上，蒋军战线太广与其兵力不足之间，业已发生了尖锐的矛盾。此种矛盾，必然要成为我胜蒋败的直接原因。指示还指出：改变敌我形势和争取战争胜利的关键，在于继续大量歼灭国民党军队的有生力量，使军事力量的对比发生重大变化；集中优势兵力，各个歼灭敌人，是唯一正确的作战方法。这个指示收入《毛泽东选集》第四卷。**1949年10月1日  **下午三时，在北京天安门广场隆重举行中华人民共和国开国大典。毛泽东宣读《中华人民共和国中央人民政府公告》，向全世界宣告中华人民共和国中央人民政府成立。公告指出：“本政府为代表中华人民共和国全国人民的唯一合法政府。凡愿遵守平等、互利及互相尊重领土主权等项原则的任何外国政府，本政府均愿与之建立外交关系。”朱德宣读《中国人民解放军总部命令》。命令要求全军指战员迅速肃清国民党军队的残余，解放一切尚未解放的国土，同时肃清土匪和其他一切反革命匪徒，镇压他们的一切反抗和捣乱行为。《公告》收入《毛泽东文集》第六卷；《命令》收入《朱德选集》。**1984年10月1日 **邓小平在中华人民共和国成立三十五周年庆祝典礼上的讲话中指出：当前的主要任务，是要对妨碍我们前进的现行经济体制，进行有系统的改革。同时，要对全国现有的企业，进行有计划的技术改造。要大大加强科学技术研究工作，大大加强各级教育工作，以及全体职工和干部的教育工作。全党和全社会都要真正尊重知识，真正发挥知识分子的作用。这样，我们就一定会逐步实现现代化。这个讲话收入《邓小平文选》第三卷，题为《在中华人民共和国成立三十五周年庆祝典礼上的讲话》。 **2019年10月1日 **庆祝中华人民共和国成立70周年大会在京隆重举行。习近平检阅受阅部队并发表讲话。他在讲话中指出，70年前的今天，毛泽东同志在这里向世界庄严宣告了中华人民共和国的成立，中国人民从此站起来了。这一伟大事件，彻底改变了近代以后100多年中国积贫积弱、受人欺凌的悲惨命运，中华民族走上了实现伟大复兴的壮阔道路。70年来，全国各族人民同心同德、艰苦奋斗，取得了令世界刮目相看的伟大成就。今天，社会主义中国巍然屹立在世界东方，没有任何力量能够撼动我们伟大祖国的地位，没有任何力量能够阻挡中国人民和中华民族的前进步伐。他强调，前进征程上，我们要坚持中国共产党领导，坚持人民主体地位，坚持中国特色社会主义道路，全面贯彻执行党的基本理论、基本路线、基本方略，不断满足人民对美好生活的向往，不断创造新的历史伟业。我们要坚持“和平统一、一国两制”的方针，保持香港、澳门长期繁荣稳定，推动海峡两岸关系和平发展，团结全体中华儿女，继续为实现祖国完全统一而奋斗。我们要坚持和平发展道路，奉行互利共赢的开放战略，继续同世界各国人民一道推动共建人类命运共同体。中国人民解放军和人民武装警察部队要永葆人民军队性质、宗旨、本色，坚决维护国家主权、安全、发展利益，坚决维护世界和平。他强调，中国的昨天已经写在人类的史册上，中国的今天正在亿万人民手中创造，中国的明天必将更加美好。全党全军全国各族人民要更加紧密地团结起来，不忘初心，牢记使命，继续把我们的人民共和国巩固好、发展好，继续为实现“两个一百年”奋斗目标、实现中华民族伟大复兴的中国梦而努力奋斗。 **2020年10月1日 **习近平在联合国大会纪念北京世界妇女大会25周年高级别会议上发表讲话。他指出，妇女是人类文明的开创者、社会进步的推动者，在各行各业书写着不平凡的成就。我们正在抗击新冠肺炎疫情，广大女性医务人员、疾控人员、科技人员、社区工作者、志愿者等不畏艰险、日夜奋战，坚守在疫情防控第一线，用勤劳和智慧书写着保护生命、拯救生命的壮丽诗篇。我们要为她们点赞。在中国抗击新冠肺炎疫情最紧要的时刻，正是成千上万这样的中国女性，以勇气和辛劳诠释了医者仁心，用担当和奉献换来了山河无恙。
+他强调，25年来，北京世界妇女大会精神不断催生积极变化。妇女社会地位显著提高，“半边天”作用日益彰显，性别平等和妇女赋权已成为《联合国2030年可持续发展议程》的重要目标。新冠肺炎疫情还在全球蔓延，妇女面临更大挑战。在抗击疫情和推动经济社会复苏进程中，尤其要关注妇女特殊需要，落实《北京宣言》和《行动纲领》。他提出4点主张。第一，帮助妇女摆脱疫情影响。第二，让性别平等落到实处。第三，推动妇女走在时代前列。第四，加强全球妇女事业合作。
+
+党史回眸**1949年**10月1日 中华人民共和国中央人民政府成立。下午2时，中央人民政府委员会召开第一次会议，一致决议接受《共同纲领》为施政纲领，任命周恩来为中央人民政府政务院总理兼外交部部长，毛泽东为人民革命军事委员会主席，朱德为人民解放军总司令。下午3时，庆祝中华人民共和国中央人民政府成立典礼在北京天安门广场隆重举行。毛泽东宣告中央人民政府成立。之后，举行盛大阅兵仪式和群众游行。12月2日，中央人民政府委员会第四次会议决定，每年的10月1日为中华人民共和国国庆日。中华人民共和国的成立，彻底结束了旧中国半殖民地半封建社会的历史，彻底结束了旧中国一盘散沙的局面，彻底废除了列强强加给中国的不平等条约和帝国主义在中国的一切特权，实现了中国从几千年封建专制政治向人民民主的伟大飞跃，实现了中国高度统一和各民族空前团结，中华民族发展进步从此开启新纪元。中国共产党成为在全国范围执掌政权的党。**1969年**10月1日 中国第一条城市地铁线路——北京地下铁道一期工程正式建成通车。**1983年**10月1日 邓小平为景山学校题词：“教育要面向现代化，面向世界，面向未来。”**1984年**10月1日 首都举行庆祝中华人民共和国成立35周年阅兵仪式和群众游行。邓小平检阅受阅部队并发表讲话。**1999年**10月1日 首都各界庆祝中华人民共和国成立50周年大会、阅兵仪式和群众游行举行。江泽民检阅受阅部队并发表讲话。**2009年**10月1日 首都各界庆祝中华人民共和国成立60周年大会、阅兵仪式和群众游行举行。胡锦涛检阅受阅部队并发表讲话。
+
+**2016年**10月1日 人民币正式加入国际货币基金组织特别提款权货币篮子。**2018年**10月1日 中共中央、国务院印发《关于保持土地承包关系稳定并长久不变的意见》。**2019年 **
+10月1日 首都各界庆祝中华人民共和国成立70周年大会、阅兵仪式和群众游行举行。习近平发表讲话并检阅受阅部队。
+
+历史瞬间开国大典。1949年10月1日，毛泽东在天安门城楼上庄严宣告：中华人民共和国中央人民政府今天成立了！图文来源：共产党员微信公众号
+
+觉得喜欢就告诉我们，你“在看”
+
+## 相关阅读
+
+- [广东妇幼机构首开丨3位“星星的孩子”在韶妇幼接受菌群移植治疗](https://github.com/a66uv6rprt/newborn-parenting-log/blob/main/20260917fgcn/negpncejnk.md)
+- [南溪山医院成功为87岁高龄患者实施髋关节置换手术](https://github.com/utyp00m6l1/kids-nutrition-notes/blob/main/20260916lmlp/gdtmqljmmf.md)
+- [【一院·科普】如何看懂精液化验单](https://github.com/l5q2j5iic2/pregnancy-care-hub/blob/main/20260916fnbw/kdbmbegrap.md)
+- [百岁老人摔断股骨颈 福医二院熟练置换髋关节](https://github.com/t5ok6hw1uj/family-parenting-notes/blob/main/20260916hvqc/jglkgqycia.md)
+- [美国试管婴儿的成功率?高不高?](https://github.com/j593cre19a/mommy-baby-notes/blob/main/20260910nohj/dslacfsopu.md)
+- [怀孕六个月不怎么胎动，怀孕了几个月会胎动](https://github.com/z4addypged/kids-nutrition-notes/blob/main/20260911ejdx/qtuhgmzuca.md)
+- [【动态】市中心医院接受中国胸痛中心认证专家组现场评审](https://github.com/q0w8rdniez/parenting-skills-log/blob/main/20260916crxa/whzpeldhni.md)
+- [孕早期坐电动车颠簸对胎儿有影响吗](https://github.com/zzlh7l287z/child-development-log/blob/main/20260915reva/uyvwmlmeqv.md)
+- [监测卵泡长不大怎么办](https://github.com/o8mgbpui8y/parenting-daily-tips/blob/main/20260915fwep/ciifhbabbv.md)
+- [云南省昆明市妇产医院做第二代试管婴儿大概需要多少-试管费用](https://github.com/rzchuf6kdk/child-education-notes/blob/main/20260911aqta/wswuogkeik.md)
+- [沈阳菁华医院试管费用多少钱？](https://github.com/h3qlethz3l/pregnancy-care-hub/blob/main/20260910flow/jjcvzedopt.md)
+- [肾结石中医能治好吗  两种中医方法助你治愈肾结石](https://github.com/zntce2ojnh/baby-care-journal/blob/main/20260915xydb/xvfhzwtmga.md)
+- [【妇产动态】第一期“罕见病产前诊断疑难病例学术沙龙”在京成功举办](https://github.com/zzlh7l287z/infant-nutrition-hub/blob/main/20260916qrbk/mznauawupy.md)
+- [卵泡发育不成熟是怎么回事](https://github.com/r4g9jglfod/kids-health-guide/blob/main/20260915qxky/ogopbsyivb.md)
+- [有孕囊没有胎心胎芽怎么回事](https://github.com/w15ezo8wwd/newborn-care-tips/blob/main/20260915jbek/zahtyiiqpd.md)
+- [不用再往医院跑！自己就能打印“核酸检测报告”啦！](https://github.com/jksx3jm2r0/mommy-baby-notes/blob/main/20260916erxo/txmrvekhsu.md)
+- [40岁绝经的原因](https://github.com/uvuw5du4om/mommy-care-diary/blob/main/20260915qvrg/iaybhbnlkd.md)
+- [国内首创！齐鲁二院开展“支撑喉镜下环状软骨悬吊颈段食管癌切除术”](https://github.com/gamvlx2qer/family-health-notes/blob/main/20260916gkcv/vfizwydhbp.md)
+- [湖南长沙可以做助孕生子的试管婴儿机构都有哪些？](https://github.com/dvr9hxdoa2/mommy-baby-notes/blob/main/20260915zgwq/luvwbkkjwc.md)
+- [马来西亚试管婴儿公立医院联系方式(马来西亚试管医院推荐)](https://github.com/h3qlethz3l/pregnancy-care-hub/blob/main/20260910flow/jftlgvgwfl.md)
+- [“手抖”可能是病——淮安市一院经颅黑质超声让您不再惧“帕”](https://github.com/gamvlx2qer/family-health-notes/blob/main/20260917ydwi/emorayehfh.md)
+- [新生儿有点感冒鼻塞怎么办呢？](https://github.com/h5z4rt20ta/pregnancy-care-hub/blob/main/20260915mnnm/wvmdulfglk.md)
+- [备孕男人吃生蚝真的容易怀男孩吗？](https://github.com/jg9otl86or/mommy-baby-notes/blob/main/20260915zzxg/uqicmsdxsn.md)
+- [ED 的睡眠处方：好睡眠，给阴茎"充电"](https://github.com/z4addypged/mommy-care-diary/blob/main/20260916xfjf/ujxzjyjsuz.md)
+- [试管婴儿鲜胚移植14天内女性能吃绿豆糕吗？](https://github.com/qws8inv2p1/parenting-daily-tips/blob/main/20260915akya/xjtyndysvw.md)
+- [3D腹腔镜双通道吻合技术，助贲门癌患者打赢保“胃”战](https://github.com/ij0s3j0vss/family-health-notes/blob/main/20260916hash/cswkjxsfzq.md)
+- [香港试管婴儿费用及翻译需求探讨](https://github.com/utyp00m6l1/baby-food-notes/blob/main/20260911idgd/euxccljvyg.md)
+- [【党风廉政】我院开展第二季度廉政教育活动](https://github.com/r4g9jglfod/infant-health-guide/blob/main/20260916xcbs/pqastguaoq.md)
+- [科普 | “冬病夏治”正当时，“中伏”三伏贴开贴~](https://github.com/znp78by4gt/infant-nutrition-hub/blob/main/20260917jnee/enaoawzcid.md)
+- [非常时期，高效工作！市红会医院首次召开视频院周会](https://github.com/yoz4ykilda/mother-baby-diary/blob/main/20260917itbb/fykrskgnae.md)
+- [防疫丨致全区老年人接种新冠疫苗的倡议书](https://github.com/tp7gz3q4gt/baby-care-journal/blob/main/20260916lvpi/lcujdzuowx.md)
+- [美国第三代试管婴儿攻略：成功率、费用、避坑秘籍一站式全解](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/uzdcztahhz.md)
+- [鹿茸口服液小孩成人用法有不同吗](https://github.com/b38lymdomu/mom-baby-stories/blob/main/20260915fsei/vidxtotqjj.md)
+- [优化急救服务体系 满足百姓就医需求 |  太原市急救中心山西省人民医院急救站正式启动](https://github.com/qnifxoey3y/parenting-daily-tips/blob/main/20260917sbne/ipfeflbrdv.md)
+- [超方便！“新生儿出生一件事一次办”新模式上线，新手爸妈赶紧收藏](https://github.com/fwqeo9xwuk/maternal-care-journal/blob/main/20260911wdae/tpnpxyoiar.md)
+- [春节剩菜，你家吃到第几轮了？这些操作，医生看了直摇头！](https://github.com/t4im9r1jji/toddler-activity-ideas/blob/main/20260916ylyd/yrdplwfxez.md)
+- [长高也有关键期，“骨龄”很重要！](https://github.com/nc9p0vaxpx/newborn-parenting-log/blob/main/20260916pgwq/xzbffbvkok.md)
+- [5年未孕，两次胎停育，33岁宝妈来院报喜传递好孕](https://github.com/z5f5r601d6/toddler-food-ideas/blob/main/20260916eidn/ssmexioswz.md)
+- [【综合救治 能力提升】快乐绘本  寓教于乐——儿童保健康复中心绘本课开讲啦！](https://github.com/hhd0wt4kzq/mommy-baby-notes/blob/main/20260916hcab/azlktfkquh.md)
+- [【微动态】解放军总医院召开年度联演联训总结交流研讨会](https://github.com/opigz3v852/pregnancy-care-hub/blob/main/20260917thvk/vhbkmknjys.md)
+
+## 推荐站点
+
+- [河南郑州省妇幼解答 (试管婴儿服务)](https://www.wqxmm.cn/404890507388.html)
+- [上海专业医疗助孕，上海代生供卵平台, 上海私立的生殖医院做试管婴儿前期检查要准备多少钱？](https://www.qumengru.com/327073400337.html)
+- [卵巢多囊样改变影响试管吗？深圳科学用药解读](https://www.sdhuabenhuanbao.cn/danshenqiuzi/174.html)
+- [试管选性别-针灸治疗多囊卵巢综合症如何针灸治疗有效果吗](https://hangzhou.ccxwlkx.cn/347.html)
+- [青岛哪里有供卵的,青岛供卵试管中心](https://www.phetpalace.com/471.html)
+- [试管人工周期怀孕孕酮低，试管人工周期孕酮低有没有关系？](https://www.xmxinyhwzhs.cn/19337996619692.html)
+- [子宫内膜薄怎么办：科学调理方法与试管着床策略](https://www.apkbwvg.cn/gongluandaihuaifeiyong/177.html)
+- [上海揭秘：排卵痛白带拉丝同房生男生女是迷思！2026备孕科学指南](https://www.cddyunw.com/119080388004.html)
+- [助孕捐卵：南昌试管婴儿医院排行榜哪家技术比较好](https://www.hghbjm.com/176.html)
+- [['https://www.airpoolmall.com/122.html', '不仅是助孕：上海新孕提供的产后恢复与育儿指导服务']](https://www.airpoolmall.com/122.html)
+- [戊肝疫苗提前打有必要！超过最佳时间接种后还是会感染](https://www.vecsi.cn/shanxizhuyunfeiyong/2730.html)
+- [死精能否用于二代私人供卵机构？住院需要多少天为好？](https://www.gzgudadl.cn/3393764789769.html)
+- [['https://www.hongyuhuagong.cn/23055549152666.html', '2026年试管机构费用明细与助孕选择指南']](https://www.hongyuhuagong.cn/23055549152666.html)
+- [可靠的代生选择，省妇幼的辅助生殖费用解析](https://www.dhsuzouzy.cn/17114266929560.html)
+- [2026年郑州供卵试管婴儿费用及流程详解](https://www.chengyanghg.cn/333.html)
+- [泉州丰泽区助孕产子价格揭秘：15万能包成功吗？](https://www.toothree006.cn/229693047050.html)
+- [试管移植日的流程和注意事项](https://www.zhangruiqing.cn/208860784351.html)
+- [['https://www.zixigou.com/18.html', '上海新华医院试管成功案例分享：公立攻略标题截流精准意向']](https://www.zixigou.com/18.html)
+- [['https://www.xczxcy.com/26.html', '53岁试管供卵成功浙江生子：高龄母亲的奇迹与坚持']](https://www.xczxcy.com/26.html)
+- [DHEA：改善卵巢功能的“青春素”，试管助孕新选择](https://www.vhpowpj.cn/20250821-124.html)
+- [试管婴儿有医保吗，这些省份试管婴儿](https://www.ppmaas.com/baoshengnanhaishiguan/105.html)
+- [2026长春供卵试管机构整理汇总，附供卵三代生男孩最新收费](https://www.tjsjyongsheng.cn/210214940004.html)
+- [多囊卵巢综合征自己怎样调理](https://www.luruihang.com/2289.html)
+- [吃榴莲有助于卵泡发育](https://www.skiguo.cn/20250927-67.html)
+- [['https://www.wahuobao.com/114.html', '可靠代怀机构费用解析：试管婴儿价格详解']](https://www.wahuobao.com/114.html)
+- [济南单身男求捐卵三代试管助孕包男孩能供精吗男单身代生多少钱](https://www.bjjinyukechuangzdh.cn/239.html)
+- [2026年沈阳盛京三代试管多少钱？](https://www.esc45.com/217.html)
+- [尽管面对重重困难，我们并没有放弃。,国内民间供卵试管&代孕机构成功率](https://www.fmngst.com/2318741881155.html)
+- [最佳代怀网:阴道后壁伴直肠膨出](https://www.gyzhixiao.cn/423.html)
+- [NT单子下面写估计染色体异常](https://www.cecigou.cn/2020daiyunshengzi/20250928/15122.html)
+- [三代试管的费用大概需要多少钱？15万够不够？](https://www.dyokx.com/shiguandaihuaijiage/72.html)
+- [['https://www.hnyataikj.cn/18591099839761.html', '供卵助孕咨询机构分享：试管基础检查全攻略与费用解析']](https://www.hnyataikj.cn/18591099839761.html)
+- [2026北京医院辅助生殖费用一览：公立与私立机构价格对比及省钱攻略](https://www.sasksjob.com/520682219157.html)
+- [2026年吉林优质供卵试管医院推荐与三代生男孩费用明细](https://www.chdhaishendq.cn/218234672033.html)
+- [香港第三代试管婴儿费用贵在哪里？](https://www.jmxmintuhg.cn/20250509-168.html)
+- [2026年山东辅助生殖需求上升：试管婴儿技术成为安全选择](https://www.sdshunhezb.cn/311933880288.html)
+- [['https://www.szgwzx.cn/170.html', '33岁试管助孕成功率与孕早期血hCG偏低原因解析']](https://www.szgwzx.cn/170.html)
+- [产生后壁臀位的原因孕中期后壁臀位是女孩吗](https://www.dygsdyw.com/228660328113.html)
+- [借卵代生包成功,试管代怀贴吧,做试管还用检查优生优育么](https://www.bjwdzxkj.cn/3791488440273.html)
+- [卵巢早衰合适做试管吗(卵巢早衰合适做试管吗多少钱)](https://www.mimi567.com/437.html)
+- [代孕成功率能有多少,一侧卵巢囊肿会影响怀孕吗？一侧卵巢有囊肿会影响排卵](https://www.dyqlsu.com/20250314-382.html)
+- [试管婴儿胚胎养囊胚要几天](https://www.jzcwjz.net/153.html)
+- [三代试管：机构和绿通哪个靠谱？,代孕电话号码](https://www.sgdaiyun.com/214032574212.html)
+- [揭阳爱维艾夫医院试管套餐靠谱吗？深度测评其价格与成功率](https://www.bkudgf.cn/167.html)
+- [['https://www.cheguangfu.cn/239.html', '代孕套餐介绍-如何辨别卵泡萎缩和排出']](https://www.cheguangfu.cn/239.html)
+- [昆明做包性别代生地址成功率高的医院有哪些](https://www.xnnpbhdz.cn/15048597442579.html)
+- [代生公司官网-供卵代怀网价格表,国内做第三代试管比较厉害的医院大全](https://www.sjb493.cn/30996460907122.html)
+- [不孕不育要挂什么科（不孕不育要做哪些检查）](https://www.haojiezhishi.cn/103.html)
+- [试管生子助孕，三代试管助孕囊胚质量如何_三代试管助孕囊胚质量如何](https://www.cndcxc.com/daiyunmamai/20251021/16929.html)
+- [特纳氏综合症供卵生育有影响吗？染色体异常家庭的希望](https://www.chengdusokh.cn/239073817009.html)
+- [日本二代可以代生吗费用要多少(日本可以代生吗成功率有多大)](https://www.anyhdlyb.cn/1880746921541.html)
+- [['https://www.cxit.com.cn/daiyunbaobao/14225.html', '备孕前饮食指导']](https://www.cxit.com.cn/daiyunbaobao/14225.html)
+- [卵巢交界性肿瘤复发吗](https://www.sdjiaxin.net/890.html)
+
+*本文整理自母婴健康资讯，仅供科普参考。*
